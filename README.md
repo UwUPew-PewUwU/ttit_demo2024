@@ -4,7 +4,7 @@ https://github.com/tochno-ne-troyan/turbo-umbrella/blob/main/Dimka.txt
 
 https://github.com/Mishkaa20/Demo1
 
-МЕТОДИЧКА ПЕТРУШИ
+МЕТОДИЧКА ПЕТРУШИ - https://212b9dc6-0b83-4c5f-a75e-9b4376aba391.filesusr.com/ugd/fc142b_4cf26351f26f48a5af590d763d09944b.pdf
 
 калькулятор сетей ipv4 - https://ivit.pro/services/ip-kalkulyator/ 
 
